@@ -1,2 +1,2 @@
 # arun.github.io
-Per
+Personal Profile of Arun Chandran
